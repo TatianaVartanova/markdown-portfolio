@@ -1,1 +1,1 @@
-[GitHub](https://github.com/TatianaVartanova)
+[GitHub Татьяна Вартанова](https://github.com/TatianaVartanova)
